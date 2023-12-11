@@ -2,5 +2,6 @@
 
 ### **Andrea Gabrielle A. Pacardo | 9-Bobola**
 
-**Ateneo de Naga University Junior High School**
+Ateneo de Naga University Junior High School
 ---
+edrtfyguhew
