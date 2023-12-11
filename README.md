@@ -7,5 +7,3 @@
 ---
 
 # ***STRANGER THINGS***
-## rtgyuhij
-## sredtfyguhi
