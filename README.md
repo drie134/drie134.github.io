@@ -6,4 +6,4 @@
 
 ---
 
-***STRANGER THINGS*** `rgb(99, 3, 255)`
+# ***STRANGER THINGS***
