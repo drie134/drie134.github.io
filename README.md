@@ -1,9 +1,8 @@
 ## draft
 
 ### **Andrea Gabrielle A. Pacardo | 9-Bobola**
-
 **Ateneo de Naga University Junior High School**
 
 # ***STRANGER THINGS***
-&nbsp; &nbsp; &nbsp; &nbsp;awserrdtt
+&nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp;&nbsp; &nbsp; &nbsp; &nbsp;awserrdtt
 edrftgyuu
