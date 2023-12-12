@@ -34,7 +34,7 @@ The three kids expressed very different emotions about Eleven. Eleven grows clos
 
 ![Stranger Things eleven](https://dnm.nflximg.net/api/v6/BvVbc2Wxr2w6QuoANoSpJKEIWjQ/AAAAQZPlC140zqdeBqlxcN0D6HQINUlMXDDYcxZ1l_ExcRL2Fd1uwLdM5Ko3SPanvRMNY0nVZuVlqQxld_RpeAOUVA3DLbIz9mz2lv2CA6qiX178vKgzaj_BLMDY5nauxg_RR32rxhGnOWx1Gc4rLMp_8Hes.jpg?r=a5c)
 
-[Stranger Things season 1 ending]
+<iframe width="560" height="315" src="https://www.youtube.com/embed/av2ppd8Jb00?si=YddFIwb5z3LdRNF7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
 After some ups and downs between the four, the party finally involved Sheriff Jim Hopper, Joyce Byers, Nancy Wheeler, Jonathan Byers, and Steve Harrington to make contact with Will and bring him back to the real world. After using her powers to contact Will, she was weakened but still managed to defend herself against the officers from Brenner's lab. With the help of the three boys, she finally met the Demogorgon, the monster that had been terrorizing Hawkins. To save Mike, Dustin, and Lucas, Eleven sacrificed herself by using all her strength and power to destroy the Demogorgon. The first season is left on a cliffhanger, leaving fans to wonder if Eleven is truly dead.
 
