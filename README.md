@@ -68,4 +68,10 @@ After many obstacles, Eleven reunited with Jonathan, Mike, Will, and newcomer Ar
 
 ![Stranger Things hospital](https://hips.hearstapps.com/hmg-prod/images/strangerthings-strangerthings4-9-01-55-47-18-1657216018.jpg?resize=980:*)
 
+***STRANGER THINGS CAST***
+<ul>
+  <li>Eleven/Jane - Millie Bobby Brown</li>
+  <li>Will Byers - Noah Schnapp</li>
+</ul>
+
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/37i9dQZF1DXc3KPAjGyPdm?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
