@@ -6,6 +6,8 @@
 # ***STRANGER THINGS***
 Stranger Things is based on a conspiracy theory called the Montauk Project. The Montauk Project is a conspiracy theory that claims that the US government has been conducting covert projects in Montauk, New York. While Stranger Things is not entirely a true story, it was inspired by a real-life conspiracy theory called the Montauk Project. The series "Stranger Things" is an American science fiction horror drama television series created by the Duffer Brothers (Matt Duffer and Ross Duffer) for Netflix. It is produced by Monkey Massacre Productions and 21 Laps Entertainment. The first season of this series was released on Netflix on July 15, 2016 with 8 episodes.
 
+[Stranger Things Official Trailer](https://youtu.be/b9EkMc79ZSU?si=7C8X0GLnp5qcHH3a)
+
 ![Stranger Things season 1](https://readysteadycut.com/wp-content/uploads/2022/05/825394-1536x864.jpg)
 
 This series is set in 1983, in a Spielbergian small town called Hawkins, Indiana. It follows a group of ordinary people who discover that a gateway to another dimension or the "Upside Down" has opened in the woods, and that a terrifying creature has crawled through it and abducted a little boy. The nearby Hawkins National Laboratory ostensibly performs scientific research for the United States Department of Energy but secretly experiments with the paranormal and supernatural, sometimes with human test subjects. All of the experiments of the laboratory lead to the people in the Hawkins Lab getting their powers from the Unbeknownst to the residents of Hawkins, the lab hosted experiments for the controversial government program known as "MKUltra". These experiments yielded the births of a number of child test subjects with psychokinetic abilities, who were in turn experimented on.
@@ -30,6 +32,6 @@ At the beginning of the first season, Eleven continued getting experimented on, 
 
 ![Stranger Things eleven](https://dnm.nflximg.net/api/v6/BvVbc2Wxr2w6QuoANoSpJKEIWjQ/AAAAQZPlC140zqdeBqlxcN0D6HQINUlMXDDYcxZ1l_ExcRL2Fd1uwLdM5Ko3SPanvRMNY0nVZuVlqQxld_RpeAOUVA3DLbIz9mz2lv2CA6qiX178vKgzaj_BLMDY5nauxg_RR32rxhGnOWx1Gc4rLMp_8Hes.jpg?r=a5c)
 
-![Stranger Things season 1 ending](https://youtu.be/av2ppd8Jb00?si=_wHFRLFIsQ6N1TW-)
+[Stranger Things season 1 ending]
 
 After some ups and downs between the four, the party finally involved Sheriff Jim Hopper, Joyce Byers, Nancy Wheeler, Jonathan Byers, and Steve Harrington to make contact with Will and bring him back to the real world. After using her powers to contact Will, she was weakened but still managed to defend herself against the officers from Brenner's lab. With the help of the three boys, she finally met the Demogorgon, the monster that had been terrorizing Hawkins. To save Mike, Dustin, and Lucas, Eleven sacrificed herself by using all her strength and power to destroy the Demogorgon. The first season is left on a cliffhanger, leaving fans to wonder if Eleven is truly dead.
