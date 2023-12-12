@@ -42,8 +42,6 @@ Stranger Things 2 quickly reveals that Hopper gave Eleven a place to stay and sh
 
 In hopes of seeking that feeling, she tagged along with Kali's group to kill an orderly who had wronged her mother. But Eleven had second thoughts when she saw a family picture reminding her that this man shouldn't be defined by his past mistakes. This, coupled with seeing Hopper and Mike needed her help through the void, led Eleven to eventually leave her new friend group. After returning home, she reunited with her friends and reconciled with Hopper. The duo then went back to Hawkins lab to close the gate once and for all, thanks to the lessons Kali taught Eleven.
 
-![Stranger Things El closing the gate season 2](https://i.ytimg.com/vi/bOVzNKBKBf4/maxresdefault.jpg)
-
 During Stranger Things 3, Eleven became a regular teenager with friends and a boyfriend, showing her the most peaceful she had and would likely ever feel in the series. Months passed, and Mike and Eleven's relationship had grown stronger. But Hopper wasn't a fan and tried to monitor the couple. But the resulting tension allowed Eleven to form a new friendship with Max, and the two bond as they shop and talk about boys. While hanging out with Max, they spy on the boys using Eleven's powers. It was all fun and games until they spied on Max's stepbrother, Billy, who appeared to be displaying strange behavior. But after doing some investigating, Billy seemed like he was okay.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/bSD8EuXX2kc?si=_yGylr7maR_feWuC" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
