@@ -70,8 +70,34 @@ After many obstacles, Eleven reunited with Jonathan, Mike, Will, and newcomer Ar
 
 ***STRANGER THINGS CAST***
 <ul>
-  <li>Eleven/Jane - Millie Bobby Brown</li>
+  <li>Eleven/Jane Hopper/Jane Ives - Millie Bobby Brown</li>
+  <li>Terry Ives - Aimee Mullins</li>
+  <li>Kali - Linnea Berthelsen</li>
+  <li>Martin Brenner - Matthew Modine</li>
+  <li>Dr. Owens - Paul Reiser</li>
+  <li>Murry Bauman - Brett Gelman</li>
+  <li>Jim Hopper - David Harbour</li>
+  <li>Barbara - Shannon Purser</li>
   <li>Will Byers - Noah Schnapp</li>
+  <li>Joyce Byers - Winona Ryder</li>
+  <li>Jonathan Byers - Charlie Heaton</li>
+  <li>Bob Newby - Sean Astin</li>
+  <li>Mike Wheeler - Finn Wolfhard</li>
+  <li>Nancy Wheeler - Natalia Dyer</li>
+  <li>Karen Wheeler - Cara Buono</li>
+  <li>Ted Wheeler - Joe Chrest</li>
+  <li>Lucas Sinclair - Caleb McLaughlin</li>
+  <li>Erica Sinclair - Priah Ferguson</li>
+  <li>Dustin Henderson - Gaten Matarazzo</li>
+  <li>Mr. Clarke - Randy Havens</li>
+  <li>Max Mayfield - Sadie Sink</li>
+  <li>Billy Hargrove - Dacre Montgomery</li>
+  <li>Steve Harrington - Joe Keery</li>
+  <li>Robin Buckley - Maya Hawke</li>
+  <li>Heather Holloway - Francesca Reale</li>
+  <li>Henry Creel (young) - Raphael Luce</li>
+  <li>Henry Creel - Jamie Campbell Bower</li>
+  <li>Victor Creel - Robert Englund</li>
 </ul>
 
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/37i9dQZF1DXc3KPAjGyPdm?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
