@@ -115,4 +115,4 @@ After many obstacles, Eleven reunited with Jonathan, Mike, Will, and newcomer Ar
 **Songs used in the series:**
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/37i9dQZF1DXc3KPAjGyPdm?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
-[news about season 5 !!](https://www.esquire.com/entertainment/tv/a40220814/stranger-things-season-5/)
+# [news about season 5 !!](https://www.esquire.com/entertainment/tv/a40220814/stranger-things-season-5/)
