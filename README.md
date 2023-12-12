@@ -28,6 +28,8 @@ This series is set in 1983, in a Spielbergian small town called Hawkins, Indiana
 
 The main lead, Eleven (011) or her real name, Jane Ives, at birth was taken from her mother, Terry, as an infant. Terry was experimented on in a highly controversial government procedure called "MK-Ultra," which led to Jane's abilities. Upon Jane's birth, she was taken by Dr. Martin Brenner and placed in Hawkins' National Laboratory. She was then given the name Eleven and met Kali, known as Eight. They grew a kinship with one another in the Rainbow Room when others had ostracized Eleven. However, that was short-lived, as Kali had found a way out, leaving Eleven behind. Only later did Eleven begin to remember faint memories of her and her mother, who had been trying to rescue her.
 
+# Season 1
+
 At the beginning of the first season, Eleven continued getting experimented on, causing her to push to her limits. She accidentally contacted the Upside Down, causing another gate to form inside the facility. This created havoc across Hawkins, Indiana. When she found an opportunity to escape, she exited through the basement's drain pipe with the help of 001, who would become Vecna. After having a run-in at a diner where she received food and a change of clothes, she stumbled across Mike, Dustin, and Lucas, searching the woods Will had disappeared in.
 
 The three kids expressed very different emotions about Eleven. Eleven grows close with Mike, while Dustin and Lucas are nervous about her disheveled appearance, which caused some issues between the group as Lucas did not trust her and proposed calling the police. Mike dismissed it and allowed her to stay in the basement, where they grew closer. Mike even gave her a nickname, El. The next day, after Mike showed her his room, she saw a picture of him and his friends, and Eleven mysteriously recognized Will. Soon after, Eleven displayed her powers fully, showing she could be helpful in finding Will.
@@ -36,11 +38,15 @@ After some ups and downs between the four, the party finally involved Sheriff Ji
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/av2ppd8Jb00?si=YddFIwb5z3LdRNF7" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
+# Season 2
+
 Stranger Things 2 quickly reveals that Hopper gave Eleven a place to stay and she wasn't dead, and the two display a father-daughter relationship.Eleven became adamant about seeing Mike. Upon cleaning the cabin after another argument with Hopper, she found a secret spot in the cabin floorboards. She discovered her file with her mother's address and identity. This sent Eleven on a journey of discovery. She sought Kali out and met her group of friends. While accompanying them, Kali taught El to allow her powers to be controlled by anger. Eventually, Eleven was adopted into the crew.
 
 ![Stranger Things El and Kali](https://static1.cbrimages.com/wordpress/wp-content/uploads/2023/01/kali-eleven-1.jpeg?q=50&fit=crop&w=750&dpr=1.5)
 
 In hopes of seeking that feeling, she tagged along with Kali's group to kill an orderly who had wronged her mother. But Eleven had second thoughts when she saw a family picture reminding her that this man shouldn't be defined by his past mistakes. This, coupled with seeing Hopper and Mike needed her help through the void, led Eleven to eventually leave her new friend group. After returning home, she reunited with her friends and reconciled with Hopper. The duo then went back to Hawkins lab to close the gate once and for all, thanks to the lessons Kali taught Eleven.
+
+# Season 3
 
 During Stranger Things 3, Eleven became a regular teenager with friends and a boyfriend, showing her the most peaceful she had and would likely ever feel in the series. Months passed, and Mike and Eleven's relationship had grown stronger. But Hopper wasn't a fan and tried to monitor the couple. But the resulting tension allowed Eleven to form a new friendship with Max, and the two bond as they shop and talk about boys. While hanging out with Max, they spy on the boys using Eleven's powers. It was all fun and games until they spied on Max's stepbrother, Billy, who appeared to be displaying strange behavior. But after doing some investigating, Billy seemed like he was okay.
 
