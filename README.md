@@ -77,7 +77,7 @@ After many obstacles, Eleven reunited with Jonathan, Mike, Will, and newcomer Ar
   <li>Dr. Owens - Paul Reiser</li>
   <li>Murry Bauman - Brett Gelman</li>
   <li>Jim Hopper - David Harbour</li>
-  <li>Barbara - Shannon Purser</li>
+  <li>Barbara Holland - Shannon Purser</li>
   <li>Will Byers - Noah Schnapp</li>
   <li>Joyce Byers - Winona Ryder</li>
   <li>Jonathan Byers - Charlie Heaton</li>
@@ -94,7 +94,17 @@ After many obstacles, Eleven reunited with Jonathan, Mike, Will, and newcomer Ar
   <li>Billy Hargrove - Dacre Montgomery</li>
   <li>Steve Harrington - Joe Keery</li>
   <li>Robin Buckley - Maya Hawke</li>
+  <li>Alexei - Alec Utgoff</li>
+  <li>Dorris Driscoll - Peggy Miley</li>
   <li>Heather Holloway - Francesca Reale</li>
+  <li>Eddie Munson - Joseph Quinn</li>
+  <li>Argyle - Eduardo Franco</li>
+  <li>Jason Carver - Mason Dye</li>
+  <li>Chrissy Cunningham - Grace Van Dien</li>
+  <li>Vickie - Amybeth McNulty</li>
+  <li>Angela - Elodie Grace Orkin</li>
+  <li>Dmitri "Enzo" Antonov - Tom Wlaschiha</li>
+  <li>Yuri Ismaylov - Nikola Đuričko</li>
   <li>Henry Creel (young) - Raphael Luce</li>
   <li>Henry Creel - Jamie Campbell Bower</li>
   <li>Victor Creel - Robert Englund</li>
