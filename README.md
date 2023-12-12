@@ -110,4 +110,6 @@ After many obstacles, Eleven reunited with Jonathan, Mike, Will, and newcomer Ar
   <li>Victor Creel - Robert Englund</li>
 </ul>
 
+[source](https://www.cbr.com/eleven-stranger-things/)
+
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/37i9dQZF1DXc3KPAjGyPdm?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
