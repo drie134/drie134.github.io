@@ -68,6 +68,8 @@ After many obstacles, Eleven reunited with Jonathan, Mike, Will, and newcomer Ar
 
 ![Stranger Things hospital](https://hips.hearstapps.com/hmg-prod/images/strangerthings-strangerthings4-9-01-55-47-18-1657216018.jpg?resize=980:*)
 
+[source](https://www.cbr.com/eleven-stranger-things/)
+
 ***STRANGER THINGS CAST***
 <ul>
   <li>Eleven/Jane Hopper/Jane Ives - Millie Bobby Brown</li>
@@ -110,6 +112,5 @@ After many obstacles, Eleven reunited with Jonathan, Mike, Will, and newcomer Ar
   <li>Victor Creel - Robert Englund</li>
 </ul>
 
-[source](https://www.cbr.com/eleven-stranger-things/)
-
+**Songs used in the series:**
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/37i9dQZF1DXc3KPAjGyPdm?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
