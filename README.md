@@ -56,4 +56,16 @@ But as usual, not everything was what it appeared to be. They regrouped with the
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/gXdA18JCJqY?si=s2QPMCy7k6RDcCRf" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
 
+# Season 4
+
+Now living with Joyce Byers and her family, Eleven moved to Lenora Hills, California. As expected, Eleven wasn't doing so well at school. She was unable to make friends. In Stranger Things 4, Eleven's purpose was learning to accept who she was. With or without powers, she was a valued person with a past like everyone else. But it came with loads of struggles. This time around, she went by the name Jane. She's constantly bullied at school and struggles with the loss of Hopper. When Mike visited, she continued to lie about her time in California. Dealing with her problems with violence, she hit one of her bullies. This caused Eleven to remember things from the past more vividly, where it appeared she had massacred children years before.
+
+Because of her altercation with the bully at the roller rink, Eleven was arrested. However, this only lasted for a short time. Dr. Owens took custody of her and shared that he could help her regain her powers because the Upside Down was still a threat. While partaking in the treatment, it caused her to remember fragments of her past in 1979, including what had happened on September 8. But Dr. Brenner also reentered the picture, expressing he only wanted to help Eleven. After discovering more and more of her past, she realized the truth of what happened that day. Henry, one of the hospital guards, was at fault for massacring everyone. While re-experiencing the massacre, she learned she banished Henry to the Upside Down, creating the monster Vecna.
+
+![Stranger Things roller rink](https://cdn.theatlantic.com/thumbor/fMsTso_bjygURBM0uf7F44uuQ70=/90x0:3488x1911/1952x1098/media/img/mt/2022/05/A762C007_210904_R21J.01779016/original.jpg)
+
+After many obstacles, Eleven reunited with Jonathan, Mike, Will, and newcomer Argyle (Eduardo Franco). She made up with Mike, and they went off to help their friends. Unfortunately, they realized the group wouldn't make it in time to help the others fight Vecna. But after learning she could help using her mind, Eleven managed to save Max, but it came at a cost. Max was in a coma, and the only bright side to this for Eleven was her reunion with Hopper upon returning to Hawkins. But the happy times didn't last long, as the threat of the Upside Down returned, setting up Stranger Things 5.
+
+![Stranger Things hospital](https://hips.hearstapps.com/hmg-prod/images/strangerthings-strangerthings4-9-01-55-47-18-1657216018.jpg?resize=980:*)
+
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/37i9dQZF1DXc3KPAjGyPdm?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
